@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Meu nome é Ariadne Nathalia de Lima
+tenho 16 anos
+ariadne.nathalia.lima2escola.pr.gov.br
